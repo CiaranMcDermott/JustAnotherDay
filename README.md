@@ -1,3 +1,0 @@
-# JustAnotherDay
-It's Just Another Day, Just another day, just another........
-These are the lyrics to an awesome song by AllTvvins called crash.
